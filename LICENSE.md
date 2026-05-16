@@ -1,4 +1,4 @@
-# 
+# perpetual trading bot professional Bot - cross-margin and futures-arbitrage is the best perpetual trading bot, featuring cross-margin and futures-arbitrage. Smart, fast, and
 
 
 
